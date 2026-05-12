@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS automation with premium Automation for CorelDRAW for macOS - perspective warp and AI upscaling. Featuring perspective warp and AI upscaling,
 
 
 
